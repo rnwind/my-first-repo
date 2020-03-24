@@ -5,13 +5,13 @@ Smart led from Russia, who tries **his best** to switch to the profession of his
 My *intension* is very stromg!
 **I won't give up!**
 
-##What I gona do now ?
+## What I gona do now ?
 
 - Study a lot
 - Do some sport
 - Have fun and enjoy!
 
-##Someting more specific ?
+## Someting more specific ?
 
 1. Study this course
 2. Make great projects
